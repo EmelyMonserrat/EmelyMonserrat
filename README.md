@@ -8,8 +8,8 @@
 
 - 📫 How to contact me:
   
-Likedin
+Likedin:
 linkedin.com/in/emely-montserrat-jimenez-nieto-ba3b2a297
 
-Hackerrank
+Hackerrank:
 https://www.hackerrank.com/profile/emely_jimenez551
